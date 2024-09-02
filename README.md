@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on open innovation
 - 📫 How to reach me dana.redena@ourhivehealth.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love to eat sour foods - I literally love when life gives me lemons lol
+- ⚡ Fun fact: I love to eat sour foods - I literally love it when life gives me lemons lol
 
 <!---
 hive-dana/hive-dana is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
